@@ -1,1 +1,1 @@
-https://www.kodlama.io/p/yazilim-gelistirici-yetistirme-kampi
+https://www.kodlama.io/p/yazilim-gelistirici-yetistirme-kampi-2024-1
